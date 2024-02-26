@@ -1,2 +1,0 @@
-# ZTheGod.github.io
-Website
